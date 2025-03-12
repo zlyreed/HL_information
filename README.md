@@ -16,7 +16,13 @@ If you're a high school student in Pittsburgh interested in **Physical Medicine 
 - A **four-week residential academic program** introducing students to various health care careers.  
 - Hands-on activities and learning from professionals in the field.  
 - **Eligibility:** Current high school sophomores or juniors (at least 15 years old).  
-- **Website:** [hcsa.pitt.edu](https://www.hcsa.pitt.edu/home?utm_source=chatgpt.com)  
+- **Website:** [hcsa.pitt.edu](https://www.hcsa.pitt.edu/home?utm_source=chatgpt.com)
+
+🔗 **Learn more:**  
+- [High School Students | How Science Works](https://www.hcsa.pitt.edu)  
+- [Summer Health Career Academy — Southwest PA AHEC](https://www.southwestahec.org/hca)  
+- [University of Pittsburgh: Health Career Scholars Academy | TeenLife](https://www.teenlife.com)  
+
 
 ---
 
@@ -26,6 +32,10 @@ If you're a high school student in Pittsburgh interested in **Physical Medicine 
 - **Commitment:** 6 to 8 hours per week for at least **8 weeks** during the summer.  
 - **Website:** [chp.edu](https://www.chp.edu/about/volunteer/opportunities/teen-program?utm_source=chatgpt.com)  
 
+🔗 **Learn more:**  
+- [Teen Volunteer Program | Children's Hospital Pittsburgh](https://www.chp.edu)  
+- [Volunteer Opportunities - St. Clair Health](https://www.stclair.org/community/volunteer-opportunities/)  
+
 ---
 
 ## 3. **Magee-Womens Research Institute High School Summer Internship Program**  
@@ -34,12 +44,21 @@ If you're a high school student in Pittsburgh interested in **Physical Medicine 
 - **Eligibility:** Must be **at least 16 years old**.  
 - **Website:** [mageewomens.org](https://mageewomens.org/for-researchers/education/high-school-summer-internship-program?utm_source=chatgpt.com)  
 
+🔗 **Learn more:**  
+- [High School Research Trainee Program | Magee-Womens Research Institute & Foundation](https://mageewomens.org)  
+- [High School Students and Undergraduates | UPMC Hillman Cancer Center](https://hillmanresearch.upmc.edu)  
+- [High School Summer Internship Program | Magee-Womens Research Institute & Foundation](https://mageewomens.org)  
+
 ---
 
 ## 4. **St. Clair Health Junior Volunteer Program**  
 - Open to **students aged 14 and older**.  
 - Volunteers assist in **hospital departments, outpatient surgical centers, and patient transport**.  
-- **Website:** [stclair.org](https://www.stclair.org/community/volunteer-opportunities/?utm_source=chatgpt.com)  
+- **Website:** [stclair.org](https://www.stclair.org/community/volunteer-opportunities/?utm_source=chatgpt.com)
+
+🔗 **Learn more:**  
+- [Junior Volunteer Program | St. Clair Health](https://www.stclair.org/community/volunteer-opportunities/)  
+- [Volunteer Opportunities - St. Clair Health](https://www.stclair.org/community/volunteer-opportunities/)  
 
 ---
 
