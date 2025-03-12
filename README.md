@@ -2,7 +2,13 @@
 - [MIT summer camps](https://mitadmissions.org/apply/prepare/summer/)
 - [Women's Technology Program (WTP) summmer camp @ MIT](https://web.mit.edu/wtp/faq.html)
 - [Antibiotic Avengers - Summer Outreach Program at Pitt](https://www.chem.pitt.edu/antibiotic-avengers-summer-outreach-program)
+  - Time: 9:00 AM - 4:00 PM during Monday, July 7th - Friday, July 11th 2025
+  - Location: Chevron Science Center, 219 Parkman Ave, Pittsburgh, PA 15213
+  - Cost: $300 ($2.50 credit transaction fee included in total)
 - [SEE: Summer Engineering Experience @ CMU](https://engineering.cmu.edu/education/outreach/programs/see.html)
+  - Session 1: Making & Engineering;  Rising 8th and 9th graders; July 7 - 11, 2025; 
+  - **Session 2: Biomedical Engineering; Rising 10th and 11th Graders; July 21 - 25, 2025.**
+  - **due by April 10th at 5 p.m.**
 - [Gelfand Center-High School Programs @ CMU](https://www.cmu.edu/gelfand/education/k12-students-parents/highschoolprograms.html)
 - [Gelfand Center-Summer 2025 for Kto8 @ CMU](https://www.cmu.edu/gelfand/gelfand-outreach/go-summer-2025-final-copy.pdf)
 
