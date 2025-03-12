@@ -15,7 +15,9 @@ If you're a high school student in Pittsburgh interested in **Physical Medicine 
 ## 1. **Health Career Scholars Academy at the University of Pittsburgh**  
 - A **four-week residential academic program** introducing students to various health care careers.  
 - Hands-on activities and learning from professionals in the field.  
-- **Eligibility:** Current high school sophomores or juniors (at least 15 years old).  
+- **Eligibility:** Current high school sophomores or juniors (at least 15 years old).
+- **Time:** June 29 - July 26, 2025
+- **Tuition:**  $3600
 - **Website:** [hcsa.pitt.edu](https://www.hcsa.pitt.edu/home?utm_source=chatgpt.com)
 
 🔗 **Learn more:**  
@@ -38,7 +40,7 @@ If you're a high school student in Pittsburgh interested in **Physical Medicine 
 
 ---
 
-## 3. **Magee-Womens Research Institute High School Summer Internship Program**  
+## 3. **Magee-Womens Research Institute High School Summer Internship Program (too young for this)**  
 - A **six-week research internship** where students participate in **basic, translational, or clinical scientific research**.  
 - Students work on independent research projects and present their findings.  
 - **Eligibility:** Must be **at least 16 years old**.  
@@ -71,7 +73,9 @@ If you're a high school student in Pittsburgh interested in **Physical Medicine 
 
 ## 6. **Southwest PA Area Health Education Center's Health Career Academy**  
 - For **9th and 10th graders**, offering hands-on activities and exposure to health professionals.  
-- Over **900 students** have participated in this **interactive health career program**.  
+- Over **900 students** have participated in this **interactive health career program**.
+- **Time:** July 14-18, 2025, from 8:45a-3:00p,at the University of Pittsburgh School of Medicine (3550 Terrace St, Pittsburgh PA 15213)
+- **Cost:**  $250 
 - **Website:** [southwestahec.org](https://www.southwestahec.org/hca?utm_source=chatgpt.com)  
 
 ---
